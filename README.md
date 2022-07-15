@@ -1,6 +1,8 @@
 # 110
 
 
+- [BeeTourist Tanıtım Videosu](https://youtu.be/3Le7AwhLutg)
+
 # **Takım 110**
 
 Takım 110
